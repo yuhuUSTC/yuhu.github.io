@@ -1,2 +1,2 @@
-# zhuyr97.github.io
-[[Homepage]](https://zhuyr97.github.io/)
+# yuhu.github.io
+[[Homepage]](https://yuhu.github.io/)
